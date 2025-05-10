@@ -1,1 +1,1 @@
-# TEMEL_KAVRAMLAR
+Temel Kavramlar ödevine ilişkin Detaylar pdf'de mevcuttur.
