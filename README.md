@@ -1,1 +1,1 @@
-Temel Kavramlar ödevine ilişkin Detaylar pdf'de mevcuttur.
+Temel Kavramlar ödevine ilişkin detaylar klasör içindeki pdf'de mevcuttur.
